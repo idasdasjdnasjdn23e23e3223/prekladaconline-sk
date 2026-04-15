@@ -1,0 +1,1 @@
+# prekladaconline-sk
